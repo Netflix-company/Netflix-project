@@ -14,3 +14,8 @@ In God we trust
 
 love is a message
 Jesus is Lord
+We are working towards success  
+Now the day is over
+Grace abound
+Come back to me
+Forward ever,backwards never

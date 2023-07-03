@@ -13,3 +13,4 @@ Thank you Jesus
 In God we trust
 
 love is a message
+Jesus is Lord

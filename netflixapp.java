@@ -5,4 +5,11 @@ We will be working as Devops
 Thank God is friday
 Bless the Lord ooh my soul
 
-things are getting better
+are getting better
+We are back to work
+we will overcome
+we are striving
+Thank you Jesus
+In God we trust
+
+love is a message

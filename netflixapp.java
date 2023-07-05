@@ -22,3 +22,7 @@ Forward ever,backwards never
 Blessed be the name of the Lord
 New job
 completed if ease
+we are on track
+slowly but sure
+good job done
+It shall be well
